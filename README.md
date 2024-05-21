@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @FakurYosiAlisandro
-- 👀 I’m learning Program Languange
+- 👀 I’m learning Program
