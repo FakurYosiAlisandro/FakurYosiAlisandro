@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @FakurYosiAlisandro
+- 👀 I’m interested in Electronics.
